@@ -1,9 +1,8 @@
 #### Olar! 👋
 
 Eu sou a Camila, mas atendo na internet por Kamila Zöldyek. Sou ilustradora, escritora e dev Android nativo e React Native.
-Nesse perfil eu tenho algumas brincadeiras, meu TCC e alguns apps que desenvolvi quando não tinha experiência. Meus trabalhos relevantes estão em repositórios privados.
+Nesse perfil eu tenho algumas brincadeiras, meu TCC e alguns apps que desenvolvi quando não tinha experiência. Meus trabalhos relevantes estão em repositórios privados. Aqui não tem parede de pastilhas em vários tons de verde e nem nunca vai ter, desculpe (exceto, claro, se eu estiver escrevendo um livro novo, porque é aqui que eu faço o controle de versão deles!).
 
-Eu movimento esse perfil com frequência porque é nele que tenho os meus livros hahaha
 
 
 📌 Meu @ é o mesmo em todas as redes sociais: @kamila_zoldyek
