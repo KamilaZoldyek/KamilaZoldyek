@@ -12,7 +12,7 @@ Eu movimento esse perfil com frequência porque é nele que tenho os meus livros
 
 ✉️ Respondo só no kmilazd@gmail.com
 
-:computer: Atualmente trabalhando na Rethink
+:computer: Atualmente trabalhando na Rethink e **não** estou procurando outras oportunidades!
 
 
 
