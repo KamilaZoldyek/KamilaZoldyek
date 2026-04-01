@@ -7,7 +7,7 @@ Nesse perfil eu tenho algumas brincadeiras, meu TCC e alguns apps que desenvolvi
 📌 Meu @ é o mesmo em todas as redes sociais: @kamila_zoldyek
 
 
-📌 [Meus links e portifolio](https://aback-sunfish-2d1.notion.site/Links-1c4cfa50ea9480f099c8e2773ed971b7)
+📌 [Meus links e portifolio](https://kamilazoldyek.notion.site/Links-1c4cfa50ea9480f099c8e2773ed971b7)
 
 🌎 Moro em Belo Horizonte - MG
 
